@@ -1,2 +1,2 @@
 # Invitation
-Basil &amp; Shahana
+Basil &amp; Shehana
